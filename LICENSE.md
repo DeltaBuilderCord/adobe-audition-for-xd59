@@ -1,4 +1,4 @@
-
+Adobe Audition for macOS ultimate Addon: noise-reduction & EQ is the best Adobe Audition for macOS addon, featuring noise-reduction and EQ. Safe, efficient, and optimized for
 
 
 
